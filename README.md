@@ -1,4 +1,4 @@
-### ✨ Programmer,Security, Electronics and Open Source Hobbyist  ✨ 
+### ✨ Programmer, Security, Electronics and Open Source Hobbyist  ✨ 
 
 ### I always ❤ to experiment new areas and things (tech and spiritual) although it is not related to my expertise 👋 
 
